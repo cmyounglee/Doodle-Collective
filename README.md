@@ -1,1 +1,3 @@
 # SomeAndThat
+## Doodle Collective and Inspiration
+Despite the limited thinking that goes into doodles, ...
