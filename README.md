@@ -1,3 +1,4 @@
 # SomeAndThat
 ## Doodle Collective and Inspiration
-Despite the limited thinking that goes into doodles, ...
+Stories are fun to share... even through small doodles.
+## Old Treasures I'm Not Particularly Proud Of
