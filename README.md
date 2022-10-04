@@ -1,4 +1,4 @@
-# Doodle Collective and Inspirations
+# Doodle-Collective
 My doodles are simple.  They don't take a lot of time.  They still have stories.
 <br>
 I have provided the story behind each doodle for anyone who needs ideas for inspiration sources.
