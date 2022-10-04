@@ -28,3 +28,6 @@ I have provided the inspiration behind each doodle for anyone who needs ideas fo
   <a href="https://drive.google.com/uc?export=view&id=1fIeFmbeUBrBgj5NaRheeGageXhgkwB62"><img src="https://drive.google.com/uc?export=view&id=1fIeFmbeUBrBgj5NaRheeGageXhgkwB62" style="width: 600px; max-width: 100%; height: auto" title="Tree and Bird" />
 <h3> Inspiration: Dreams </h3>
   <a href="https://drive.google.com/uc?export=view&id=1jNZNAPr15uF6yZVVLaM0_0N4HzIew9G5"><img src="https://drive.google.com/uc?export=view&id=1jNZNAPr15uF6yZVVLaM0_0N4HzIew9G5" style="width: 700px; max-width: 100%; height: auto" title="Treehouse" />
+<br>
+<h2> End </h2>
+All art in this collective was created by Clara Myoung Lee.
