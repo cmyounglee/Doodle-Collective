@@ -1,7 +1,7 @@
 # Doodle-Collective
 My doodles are simple.  They don't take a lot of time.  They still have stories.
 <br>
-I have provided the story behind each doodle for anyone who needs ideas for inspiration sources.
+I have provided the inspiration behind each doodle for anyone who needs ideas for inspiration sources.
 <br>
 <br>
 <h3> Inspiration: Fresh Weather </h3>
