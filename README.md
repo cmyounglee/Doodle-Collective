@@ -15,6 +15,9 @@ I have provided the story behind each doodle for anyone who needs ideas for insp
   <a href="https://drive.google.com/uc?export=view&id=1M_8ZUm4_iLm-G4j8lu95Iy825f4NHIMx"><img src="https://drive.google.com/uc?export=view&id=1M_8ZUm4_iLm-G4j8lu95Iy825f4NHIMx" style="width: 550px; max-width: 100%; height: auto" title="Grumpy Doggy" />
 <h3> (Not a doodle) Inspiration: Lunch Trash </h3>
   <a href="https://drive.google.com/uc?export=view&id=1IOQOB6B91381LELagXgzvESt5tNjv9La"><img src="https://drive.google.com/uc?export=view&id=1IOQOB6B91381LELagXgzvESt5tNjv9La" style="width: 500px; max-width: 100%; height: auto" title="Tin Bird" />
+<br>
+<a href="https://artincontext.org/recycled-art/">More on Recycled Art!</a>
+<p> Visit this site to learn more! </p>
 <h3> Inspiration: San Diego </h3>
 <a href="https://drive.google.com/uc?export=view&id=13k-3U5ZNbwOCAj9L5OiQ1mg7VhkBEQnV"><img src="https://drive.google.com/uc?export=view&id=13k-3U5ZNbwOCAj9L5OiQ1mg7VhkBEQnV" style="width: 700px; max-width: 100%; height: auto" title="Sand Castle" />
 <h3> Inspiration: Fruit </h3>
