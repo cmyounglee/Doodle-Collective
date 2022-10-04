@@ -8,3 +8,4 @@ Share stories ... doesn't matter how
 
 ## Recent Digitals From My Phone That I'm Not Not Proud Of
 ![Tulip](file:///Users/clara/Downloads/Tulip.png)
+![Tulip](https://drive.google.com/file/d/1lnX-1mhv9ew7BNyNvBnGrvDt5ixiKY1g/view)
